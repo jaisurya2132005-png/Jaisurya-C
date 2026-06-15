@@ -19,4 +19,4 @@ I am a final-year BE Electronics and Communication Engineering student with a pa
 
 ## 📫 Contact
 - Email: jaisurya2132005@gmail.com
-- LinkedIn : linkedin.com/in/jaisurya-c-b-e-060137295?
+- LinkedIn : https://www.linkedin.com/in/jaisurya-c-b-e-060137295?
